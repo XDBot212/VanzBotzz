@@ -1,0 +1,1 @@
+//jangan jual sc ini!!
